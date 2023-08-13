@@ -10,3 +10,13 @@ My technical writing samples are categorized into the following documentation ty
 * Technical Clips
 * Editing Examples
 * SEO Clips
+
+## My writing samples
+
+| Document | Documentation type | Description |
+| ------------- | ------------------ | ----------- |
+| [Title](link.md) | Type | Explanation. |
+| [Title](link.md) | Type | Explanation. |
+| [Title](link.md) | Type | Explanation. |
+| [Title](link.md) | Type | Explanation. |
+| [Title](link.md) | Type | Explanation. |
