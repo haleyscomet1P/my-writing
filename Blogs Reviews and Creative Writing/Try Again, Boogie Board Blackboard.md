@@ -1,0 +1,30 @@
+Stationary obsession is a fickle mistress. People lured by the siren song of stationary are usually nice, reasonable, frugal people who can nonetheless be found in the torpid aisles of the local Office Depot, spending a significant portion of their meager paychecks on office supplies. What was parodied in Office Space is the reality for many, and I have sometimes found myself in the midst of a Swingline Stapler-esque demand for my Pilot G2 Pen that has mysteriously gone missing.
+
+We all have our vices, and one of mine is office supplies. I have stacks of notebooks that I will never use, and many jars of pens that decorate my closet like some kind of shrine to mundane office work. I take pride in my tiny handwriting and multicolored notes, and I continue to prefer handwritten material even though my typing is much more efficient.
+
+Still, even I am not immune to the allure of shiny new technology, and that’s where my journey with the Boogie Board began. I purchased a basic Boogie Board, a black LCD writer promising to eliminate paper. What a promise. I never labored under the delusion that I would get rid of my paper (and who would want to, anyway?), but I did relish the idea of paperless mundane notes like grocery or to-do lists. Who wouldn’t want to get rid of the stack of Post-It notes on their desk?
+
+So I used my Boogie Board, frequently enough that I made another purchase one night in the dying aisles of my local Department Store:  a Boogie Board Sync. With the ability to upload notes to ‘The Cloud’ as the Internet hipsters call it, this thing might actually replace your paper. It even has the ability to live stream what you’re writing, a perfect feature for professors or other people needing a handwritten medium to display their ideas in.
+
+The Boogie Board Sync and I have had a long and healthy relationship, so when Kent Displays promised their new Blackboard, I was naturally intrigued. A clear display with templates you can insert, and a heavy steel pen? I was already in. But then I heard you could erase small portions of your work rather than the whole thing. Until now, Boogie Board displays have been neutered by their inability to erase small portions. Much like my lab notebooks in school, I found myself crossing out errors instead of erasing. So surely, with a larger display and a lower price tag, this would be the board I was looking for. I signed up for their email list and purchased the Blackboard as soon as it released.
+
+So imagine my surprise when I find that it leaves a lot to be desired. The packaging is cheap plastic, found in dollar toy stores, and sticky tape is already covering parts of my new beauty. Still, we can overlook bad packaging if there’s a good product, right?
+
+Opening the box, I find that two of my templates are already bent, and look like someone attempted to try out the product before purchasing. Since I’m one of the neurotic heroes who fish items out of the very back of the shelf specifically to avoid instances like this, you can see why I’m already irked.
+
+As I try to insert the templates into the back of the boogie board myself, it quickly becomes apparent that even the most careful of people would damage this product. Sometimes the templates slip in just fine, and sometimes they don’t. There’s no rhyme or reason to it, and no matter how careful I am, I can’t seem to figure out the trick. User error? Since OCD-ness is akin to Godliness for me, I find this unlikely.
+
+The Board itself is pleasant enough to write on, mimicking my experience on every other LCD tablet I’ve tried so far. The steel pen is the highlight of the package for me, as it feels solid in my hands and makes for a very easy and accurate writing experience. You can buy this pen separately, but sadly it won’t work with the Sync, so there goes my idea.
+
+This is annoying in and of itself, as most of the videos spend too much time going over common sense things like ‘how to draw on your Boogie Board’. Because I needed a primer on that. I skipped through until I got to their explanation for Exact Erase. Here’s what I found:
+
+-   There’s a calibration mode for Exact Erase that requires you to hold down the erase button the entire time you calibrate it.
+-   You have to hold down the same erase button the entire time you’re erasing text.
+-   If you calibrate Exact Erase to really get rid of your eraser marks, the rest of your text will dim upon using the button, leaving you with a very dim final product on a screen that already suffers from being slightly dim.
+-   You have to press down the pen with Herculean effort to actually get the thing to erase (but don’t worry, the display is strong, says Kent Displays!!!)
+
+Chief among my complaints is the fact that it doesn’t save your notes without taking a picture via the app that’s only been released in the Apple App Store. It doesn’t save like the Sync, which is fine because it’s a different product. But why release a product with only half your customers getting the full experience? There’s a tiny conciliatory remark about the Play Store receiving the app in January, but that does little to appease me right now.
+
+This was not the board I was looking for. Listen, I understand that LCD writing tablets are kind of a niche market, and I’m looking at the bottom of the barrel products for children and people on a budget, but there comes a point when your marketing department goes too far. Don’t promise me a seamless, beautiful experience and then deliver me something off the dollar menu.
+
+The Blackboard isn’t irredeemable. It writes nicely. The templates are a neat idea, and the solid pen feels great and looks great magnetically attached to the board. The larger size is a great improvement. But this board looks more professional than it is, and that’s the problem. Having a Sync in this size and with the upscale pen would have been fantastic, but Kent Displays missed its opportunity in my book. The Blackboard is just an upgraded standard Boogie Board, and that’s a shame. Spend a bit more money and snag a Sync, or hope that Kent drops a tablet really worth having.
