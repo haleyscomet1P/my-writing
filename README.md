@@ -1,7 +1,7 @@
 # my-writing
 # About the My Writing Repo
 
-This repository houses a collection of my written works, primarily consisting of samples and clips from freelance clients, as well as previous employment.
+This repository houses a collection of my written works, primarily consisting of samples and clips from freelance clients, as well as previous employment. This readme doc is a work in progress and will house links to featured documents or document types as the portfolio is expanded.
 
 ## Documentation types
 
