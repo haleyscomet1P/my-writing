@@ -1,5 +1,5 @@
 > [!IMPORTANT]  
-> 📌This article was done as a developmental edit and line edit for a client. Please keep in mind that this file is the **BEFORE** file with no edits. The **AFTER** file can be found [here](https://github.com/haleyscomet1P/my-writing/blob/main/Editing%20Examples/Mold%20Inspection%20Guide%20After.md).
+> 📌This article was done as a developmental edit and line edit for a client. Please keep in mind that this file is the **BEFORE** file with no edits. The **AFTER** file can be found [here](https://github.com/haleyscomet1P/my-writing/blob/82fd9eddf9d554c250eaab55a6ffc95f9bd01b3f/Editing%20Examples/Mold%20Inspection%20Guide%20After.md).
 
 # Article: The ultimate guide to mold inspections
 
